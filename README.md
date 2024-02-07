@@ -1,2 +1,3 @@
-![image](https://github.com/TharushiSath/Real-estate-market-place/assets/148171100/da318c09-c24e-4ca8-bd70-3f925ef6f871)
 
+
+![Screenshot 2024-02-07 170752](https://github.com/TharushiSath/Real-estate-market-place/assets/148171100/9446f844-3786-45b5-9637-154b8d65e790)
